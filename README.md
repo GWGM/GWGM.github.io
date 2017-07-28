@@ -1,5 +1,5 @@
 # GWGM.github.io
-Hvdwiink label / good weed good music productions
+Hvdwiink label / good women good men productions
 
 Feel free to use this as a layout for your next project(it was coded from the ground-up referencing a couple templates)
 
